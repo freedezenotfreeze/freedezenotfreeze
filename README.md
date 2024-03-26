@@ -2,7 +2,7 @@
 - 👀 I’m interested in heavy metal and rock music, cruise ships, BTS is my favourite kpop group.
 - 🌱 I’m currently learning industrial engineering and PYTHON language.
 - 💞️ I’m looking to collaborate on CSI PRO and be a professional guitarist.
-- 📫 How to reach me ...
+- 📫 How to reach me; in instagram, discord and X.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love british accent but i don't understand that.
 
